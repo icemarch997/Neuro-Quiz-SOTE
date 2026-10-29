@@ -1,1 +1,0 @@
-# Neuro-Quiz-SOTE
